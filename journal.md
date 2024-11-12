@@ -4,3 +4,5 @@ Compass,light sensor,matrix sensor
 
 # september 11, 2024 
  the github entry was cool went good setting it up.
+# november 12, 2024 
+A event that interest me is the jake paul vs mike tyson fight and how this relates to the stuff we been learning in class is how they have to code everything they put online and how they do also how many people does it take to get all that done in a certain amount of time 
