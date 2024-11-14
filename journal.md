@@ -6,3 +6,5 @@ Compass,light sensor,matrix sensor
  the github entry was cool went good setting it up.
 # november 12, 2024 
 A event that interest me is the jake paul vs mike tyson fight and how this relates to the stuff we been learning in class is how they have to code everything they put online and how they do also how many people does it take to get all that done in a certain amount of time 
+# october 28, 2024
+the reason why computer science and technology has a big role to do with this election its cause they have to keep track of all the votes coming in from every where from around the nation and espically cause the voting system is now all online now in today society 
