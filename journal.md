@@ -13,3 +13,7 @@ my concerns with ai is the evolvement and how much it learns cause what happens 
 
 # december 16, 2024
 what im ready for is to get away from school for a lil bit cause it feels like we never get a break.
+
+# january 8, 2025
+ the thing enjoyed most about this class was the work and thhe programming it wasa actually fun 
+ 
