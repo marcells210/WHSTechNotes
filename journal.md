@@ -17,3 +17,5 @@ what im ready for is to get away from school for a lil bit cause it feels like w
 # january 8, 2025
  the thing enjoyed most about this class was the work and thhe programming it wasa actually fun 
  
+# january 22, 2025
+one feature i would add to tiktok if i was a coding it would be to put in parlays to win my money 
