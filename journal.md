@@ -19,3 +19,6 @@ what im ready for is to get away from school for a lil bit cause it feels like w
  
 # january 22, 2025
 one feature i would add to tiktok if i was a coding it would be to put in parlays to win my money 
+
+# january 13, 2025
+i think we should go back to traditional training and not depend on ai because one day we are not gonna be able to depend on it and it would be better if everyone had knowledge about it 
