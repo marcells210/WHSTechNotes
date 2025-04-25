@@ -22,3 +22,6 @@ one feature i would add to tiktok if i was a coding it would be to put in parlay
 
 # january 13, 2025
 i think we should go back to traditional training and not depend on ai because one day we are not gonna be able to depend on it and it would be better if everyone had knowledge about it 
+
+# march 24, 2025 
+I think it does have a impact on people guessing who is gonna win the tournament but in my opinon Ai does not make sense in predicting games like this because in march madness anything happens like the biggest upsets,game winners, and teams coming back even though they are down by 21 points. 
