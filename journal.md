@@ -25,3 +25,5 @@ i think we should go back to traditional training and not depend on ai because o
 
 # march 24, 2025 
 I think it does have a impact on people guessing who is gonna win the tournament but in my opinon Ai does not make sense in predicting games like this because in march madness anything happens like the biggest upsets,game winners, and teams coming back even though they are down by 21 points. 
+# march 31,2025
+what im feeling right now is tired because all the testing thats been going on in the school and stuff but the stressful part of the day is when it gets to 4:30 and you gotta wait those last five minutes
