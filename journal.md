@@ -31,3 +31,5 @@ what im feeling right now is tired because all the testing thats been going on i
 Minecraft; voyage aquatic
 # april 7,2025
 Ai can prepare me by hhelping resolve answer in all sort of ways
+# may 7,2025
+i think in my personal opion i think a gorilla will win against 100 men because the gorilla is way to strong and massive also has like super human strength 
