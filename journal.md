@@ -156,3 +156,5 @@ Minecraft; voyage aquatic
 Ai can prepare me by hhelping resolve answer in all sort of ways
 # may 7, 2025
 i think in my personal opion i think a gorilla will win against 100 men because the gorilla is way to strong and massive also has like super human strength 
+# may 20, 2025
+yes i am ready for summer because im going to have my first fight and im going on a crusie to mexico
