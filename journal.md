@@ -158,3 +158,7 @@ Ai can prepare me by hhelping resolve answer in all sort of ways
 i think in my personal opion i think a gorilla will win against 100 men because the gorilla is way to strong and massive also has like super human strength 
 # may 20, 2025
 yes i am ready for summer because im going to have my first fight and im going on a crusie to mexico
+# april 14, 2025 
+I believe that while the intentions behind these bans are good, they could be detrimental to students. The potential benefits of reduced distractions and cyberbullying are significant, but the drawbacks related to emergency communication and student autonomy are equally important. Students need to learn how to manage technology responsibly, and a complete ban doesn't allow for that development.
+# april 22, 2025
+i wanna thank all my teachers for this year for getting me more smarter
